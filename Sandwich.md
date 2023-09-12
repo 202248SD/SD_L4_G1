@@ -11,3 +11,5 @@
 9. Squeeze 1.5 tablespoons of the jelly onto a large side of the other piece of bread.
 10. Assemble the sandwich by joining the two sides of the bread that has the jelly and peanut butter.
 11. Eat
+
+![The San Juan Mountains are beautiful!]([/assets/images/san-juan-mountains.jpg "San Juan Mountains"](https://media.tenor.com/_A27t2_4wH0AAAAC/peanut-butter-jelly-time-banana.gif)https://media.tenor.com/_A27t2_4wH0AAAAC/peanut-butter-jelly-time-banana.gif)
